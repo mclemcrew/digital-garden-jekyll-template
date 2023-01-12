@@ -31,7 +31,7 @@ People aren't aware of time or isolation when they're chasing a vision (44)
 
 Paradox of support: The more you have externally, the less you have internally (51)
 
-> W. Somerset Maugham --- "I write only when **inspiration strikes**. Fortunately it strikes every morning at nine o'clock sharp." (64)
+W. Somerset Maugham --- "I write only when **inspiration strikes**. Fortunately it strikes every morning at nine o'clock sharp." (64)
 
 What's the difference between art and a craft? (78)
 
@@ -49,7 +49,7 @@ Remove yourself from the hierarchy, it's not serving you and it only makes you a
 
 Creative work is not a selfish task, no matter what it may appear as externally (165)
 
-> “You know, Hitler wanted to be an artist. At eighteen he took his inheritance, seven hundred kronen, and moved to Vienna to live and study... Ever see one of his paintings? Neither have I. Resistance beat him. Call it overstatement but I'll say it anyway: it was easier for Hitler to start World War II than it was for him to face a blank square of canvas.”
+>“You know, Hitler wanted to be an artist. At eighteen he took his inheritance, seven hundred kronen, and moved to Vienna to live and study... Ever see one of his paintings? Neither have I. Resistance beat him. Call it overstatement but I'll say it anyway: it was easier for Hitler to start World War II than it was for him to face a blank square of canvas.”
 
 > “If you find yourself asking yourself (and your friends), "Am I really a writer? Am I really an artist?" chances are you are. The counterfeit innovator is wildly self-confident. The real one is scared to death.”
 

@@ -9,7 +9,7 @@ date-read: 11/2022
 
 Throughout his book, "The Power of Unwavering Focus", Dandapani discusses the importance of developing a sense of focus and discipline in order to achieve success.  Dandapani argues that a lack of focus is a major obstacle to achieving one's goals and that developing the ability to focus is crucial for success in any area of life be it personal or professional.
 
-Dandapani discusses the ways in which people can develop their focus, such as through mindfulness and meditation, setting clear goals and priorities, and minimizing distractions. Dandapani also emphasizes the importance of developing discipline in our everyday routines and the role that plays in maintaining focus overall.  You can't live an unfocused life 90% of the time and a focused one 10% of the time and assume that you can focus at the drop of a hat.  The more time we practice, the better we become at that habit, be it unfocused or focused.
+Throughout the various chapters, he discusses the ways in which people can develop their focus, such as through mindfulness and meditation, setting clear goals and priorities, and minimizing distractions. Dandapani also emphasizes the importance of developing discipline in our everyday routines and the role that plays in maintaining focus overall.  You can't live an unfocused life 90% of the time and a focused one 10% of the time and assume that you can focus at the drop of a hat.  The more time we practice, the better we become at that habit, be it unfocused or focused.
 
 Three main topics perpetuate the argument: attention, concentration, and willpower.  By developing these items, our ability to focus will increase.
 
@@ -77,7 +77,11 @@ Willpower is the ability to pull your awareness to a specific location within th
 
 Making your bed everyday is a manifestation of willpower and mastery over it (200)
 
+
+
 Abstinence, Purpose, Focus, Time, and Managing Energy are the pillars of leading a focused life.
+
+##### Quotes
 
 > "Where awareness goes, energy flows" - Gurudeva
 
