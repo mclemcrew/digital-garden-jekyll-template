@@ -77,7 +77,39 @@ Willpower is the ability to pull your awareness to a specific location within th
 
 Making your bed everyday is a manifestation of willpower and mastery over it (200)
 
+Repeating actions will produce a pattern that is extremely difficult to overturn either mentally or physically.  These patterns will make their way into the subconscious.  Be leery of what you repeat for it'll manifest through the energy that you provide it.  Wheel of concentration vs wheel of distraction (222)
 
+Wisdom is the timely application of knowledge (231)
+
+Set a timer and allow yourself to become distracted.  Know whom to let your awareness go along with and whom to protect it from (233)
+
+Happiness is a by-product of a focused-life and making sure you have time for the things you love (234)
+
+"Though it seems a harmless gauge of time....a day is a saw steadily cutting down the tree of life" (241)
+
+Specifically call out that you're trying to be present in all interactions which require you to change communication styles and preferences (241)
+
+FOMO, absence of joy, etc is a common example of what a focused person my deal or be confronted with (246)
+
+"The shorter way to do many things is to do one thing at a time" -Mozart (250)
+
+To be fully present, your awareness must be tied in the present, not in the past, nor the future.  Those items (the past and future) can be amazing learning experiences, but only when you make a conscious effort to do so.  "The future is manifested in the here and now, not later or tomorrow."  Being present means your energy will flow and gather there.  When you sense someone's energy leave you, you know they are focusing on something else (262)
+
+Worry is awareness unfounded and wondering about in the future.  It can be a useful tool, but can also be detrimental if allowed to ruminate on events that haven't occurred and to which there's already a solution. (267)
+
+"Whatever we invest in consistently in our mind, be it positive or negative, will start to manifest in our lives." (270)
+
+"Where awareness is in the mind determines our perspective" (275)
+
+> "Repeatedly thinking about something that has to get done, does not get it done." (278)
+
+Awareness jumping uncontrolled from one thing to the next causes anxiety. (279)
+
+Reactions are a direct manifestation of an uncontrollable awareness.  Positive reactions can be bad too.  Be enthused, not excited (which can be a chaotic form of energy). (290)
+
+Mental arguments will be omnipresent and we can't avoid them.  Set aside a time to deal with them and use your willpower and concentration to stay on topic until the appointment (298)
+
+"You don't rise to the occasion, you sink to the level of your training" (307)
 
 Abstinence, Purpose, Focus, Time, and Managing Energy are the pillars of leading a focused life.
 

@@ -11,6 +11,7 @@ You're probably here for some project updates which can be found [[Project Updat
 
 If you aren't, you'll find my notes below in various sections. The [[project updates]] will often link to these other notes, which is why they are included here.
 
+<!-- Just for some flare because why not? -->
 <p class="gradient-border" id="box" style="padding: 1em 1em; background: #f5f7ff; border-radius: 4px;">
   If you don't have any idea where you're at, me either, sweetie 🧡
 </p>
