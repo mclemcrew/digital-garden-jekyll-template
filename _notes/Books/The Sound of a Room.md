@@ -1,8 +1,8 @@
 ---
-title: The Sound of a Room: Memory and the Auditory Presence of Place
+title: The Sound of a Room - Memory and the Auditory Presence of Place
 author: Seán Street
 year: 2020
-summary: Through the lens of a poet and overall lover of sound, Street invesitages a different aspect of appreciating sound within each individual chapter.  
+summary: Through the lens of a poet and overall lover of sound, Street investigates a different aspect of appreciating sound within each individual chapter.  
 date-read: 01/2023
 ---
 ## Summary

@@ -20,9 +20,9 @@ If you aren't, you'll find my notes below in various sections. The [[project upd
 
 [[Book List| Books]] 📚
 
-[[Research Papers]] 📜
+> Figuring out how to port from other sources...[[Research Papers]] 📜
 
-[[Writing]] 🖊️
+> Same... It'll be up soon [[Writing]] 🖊️
 
 [[Project Updates]] 🚧
 
