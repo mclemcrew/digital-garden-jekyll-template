@@ -5,7 +5,7 @@ year: 2022
 summary: Through willpower, concentration, and focus we can achieve anything we set our minds to.  Dandapani uses his training from a Hindu monk to help others control their mind and build a focused lifestyle.
 date-read: 11/2022
 ---
-### Summary
+## Summary
 
 Throughout his book, "The Power of Unwavering Focus", Dandapani discusses the importance of developing a sense of focus and discipline in order to achieve success.  Dandapani argues that a lack of focus is a major obstacle to achieving one's goals and that developing the ability to focus is crucial for success in any area of life be it personal or professional.
 

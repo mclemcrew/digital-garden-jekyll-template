@@ -57,6 +57,7 @@ Creative work is not a selfish task, no matter what it may appear as externally 
 
 > “Of any activity you do, ask yourself: If I were the last person on earth, would I still do it?”
 
+##### References
 bibtext:: @book{pressfield2002war,
   title={The war of art: Break through the blocks and win your inner creative battles},
   author={Pressfield, Steven},
