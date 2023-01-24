@@ -50,7 +50,7 @@ Silent and listen are anagrams (14)
 What's the point of this all?
 > "...to recognize the audbility of an environment is to record my presence within it" (15)
 
-The sound recorder is objective, your ears and brain are note.  This is referred to as the [[Cocktail Party Effect]]. We are always hearing, but selectively listening (16)
+The sound recorder is objective, your ears and brain are not.  This is referred to as the [[Cocktail Party Effect]]. We are always hearing, but selectively listening (16)
 
 ##### A Day In the Life
 
