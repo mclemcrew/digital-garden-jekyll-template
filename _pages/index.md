@@ -20,8 +20,7 @@ If you aren't, you'll find my notes below in various sections. The [[project upd
 
 [[Book List| Books]] 📚
 
-[[Writing, Notes, & Thoughts | Notes]]
-> Figuring out how to port from other sources...[[Research Papers]] 📜
+[[Note List| Writing, Notes, & Thoughts]] 📜
 
 [[Project Updates]] 🚧
 
